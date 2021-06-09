@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @loliaria
+- 👀 I’m interested in coding 
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on porn video
+- 📫 How to reach me my discord is ء⚡xen⚡(she/her)#0001
